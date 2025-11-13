@@ -1,0 +1,16 @@
+---
+title: "Your Eternal Father God the Most High"
+date: ""
+slug: "your-eternal-father-god-the-most-high"
+excerpt: "When a person says he loves Me, he will do all according to My Holy Will Monday, August 25th, 2014 @ 19:05 My dearly beloved daughter, when a person says he loves Me, he will do al"
+---
+
+When a person says he loves Me, he will do all according to My Holy Will
+Monday, August 25th, 2014 @ 19:05
+
+My dearly beloved daughter, when a person says he loves Me, he will do all according to My Holy Will. He will place everything in My Holy Hands and he will forget his own needs and desires. Then he will say to Me"Jesus everything I say and do is according to Your Holy Will - do with me according to the Will of God."
+The man who lives in Me and I, in him, will surrender all according to that which gives Glory to God. He will have no selfish motives; no hidden desire to please himself and will do everything he can, in this life, so that he is in full union with Me. He will hand over to Me every thought; every movement; every step and every action so that I can act within his soul. He will trust in Me, completely, and he will know that everything I do, everything that I allow and everything I carry out, in order to purify the earth, will have only one objective and that is to give Glory to God.
+Man, on his own, can never give Me such a gift unless he allows My Holy Spirit to reside within him. Only then, can he rise to the perfection, which will transform him, so that his heart and soul become entwined with Me. I can then, through My Divinity, create great miracles in that soul who, having trusted in Me completely, will still retain his God-given right - that of his free will.
+By allowing Me, Jesus Christ, to reside within you, it will require great sacrifice on your part. You must shed every lofty thought; every weakness and every ounce of self-pity. When you come to Me, and ask Me to guide you, then any suffering, which was your lot before, will be discarded. Nothing will trouble you. You will be incapable of feeling hatred for others, including those who cause you great harm or sorrow. You will forgive easily, hold no resentment in your heart, for whatever difficult circumstances you may be in, and you will see things as I see them.
+To prepare for life in Me, you must remind yourselves that all that is good comes from God. Man, by his own intellect and determination, can never attain peace until the day he offers himself to God, in mind, body and soul. By offering Me, Jesus Christ, the gift of his full trust. I will reside in that soul and he will become part of all My Glory. I will elevate such souls. What joy will flood their hearts! Fear of the unknown will bother them no more. In this way I will prepare the world for My Great Glory - My New Glorious Kingdom, where all life will be lived, according to the Will of God, on earth as it is in Heaven.
+When My Will becomes engrained within the souls of those who live their lives according to My every desire, they will never experience hatred in their hearts, of any kind, again. For this would be impossible. I am incapable of hatred and if I am permitted to live in your soul, then nothing can remain within you, which does not come from Me.
